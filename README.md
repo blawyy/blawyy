@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @blawyy
+- 👀 I’m interested in programmation
